@@ -18,7 +18,7 @@ Situs kami mungkin sudah tidak asing di dengar karena banyaknya member yang seti
 hanya dengan minimal deposit 10 ribu rupiah saja bisa bermain berbagai jenis permainan yang tersedia di kami 
 
 
-<font color="yellow" size="5"> Situs slot terbesar di jamin di bayar </font><br>
+ ##Situs slot terbesar di jamin di bayar
 
 Situs <a href="https://link2.situsliga.com/?ref=4DDDFB" > liga 188</a> ini juga menyediakan permainan slot dari berbagai provider yang populer di mainkan member meber slot, jadi tidak perlu repot mendaftarkan banyak akun untuk berganti permainan, Di kami satu akun saja sudah cukup untuk bermain semua.. 
 provider yang tersedia di kami seperti pragmatic , PG soft , Spade gaming , dan lain lain adalah provider resmi yang jelas fair play tanpa settingan dan murni mengandalakan peruntungan member. 
@@ -27,7 +27,7 @@ provider yang tersedia di kami seperti pragmatic , PG soft , Spade gaming , dan 
 
 Situs <a href="https://link2.situsliga.com/?ref=4DDDFB" > liga 188</a> ini juga menyediakan permainan live casino dari berbagai provider, yang sudah di pastikan live tanpa settingan dan yang pasti menang berapapun dijamin di proses tanpa harus menunggu lama, karena kami mengutamakan pelayanan dan kenyamanan semua member member kami
 
-<font color="red" size="6""> Berbagai pilihan PROMO menarik </font><br>
+## Berbagai pilihan PROMO menarik 
 
 Situs <a href="situsliga.com/?ref=4DDDFB" > liga 188</a> ini sudah pasti banyak promo yang dapat di pilih sesuai kebutuhan member, yang tidak perlu ribet dan jelas untuk syarat dan ketentuannya tanpa bohong. karena kami terpercaya dan di pastikan bila syarat dan ketentuan terpenuhi kami jamin kami pasti bayar
 
