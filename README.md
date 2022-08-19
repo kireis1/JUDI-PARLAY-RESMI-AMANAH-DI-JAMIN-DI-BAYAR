@@ -3,34 +3,7 @@ Kami adalah situs judi bola parlay terpercaya di jamin menang berapapun kami pas
 
 silahkan di coba peruntungannya dan mendaftar di kami 
 
-<style>
-blink {
-  -webkit-animation: 2s linear infinite kedip; /* for Safari 4.0 - 8.0 */
-  animation: 2s linear infinite kedip;
-}
-/* for Safari 4.0 - 8.0 */
-@-webkit-keyframes kedip { 
-  0% {
-    visibility: hidden;
-  }
-  50% {
-    visibility: hidden;
-  }
-  100% {
-    visibility: visible;
-  }
-}
-@keyframes kedip {
-  0% {
-    visibility: hidden;
-  }
-  50% {
-    visibility: hidden;
-  }
-  100% {
-</style>
-<blink><a href="https://link2.situsliga.com/?ref=4DDDFB" ><img src="https://juragananime.id/wp-content/uploads/2022/05/register-gif.gif" width="300" height="202" 
- style="display:block; margin:auto;" > </a></blink>
+
 
 
 <table><thead style="text-align: center; background: YELLOW; color: black;"><tr><th colspan="3" style="padding: 5px;">LIGA188</th></tr></thead><tbody style="background: black; color: white;"><tr><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Jenis Deposit</td><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Bank Transfer, Ovo, Dana, Gopay, Link aja dan Pulsa</td></tr><tr><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Minimal Deposit</td><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Rp 10.000</td></tr><tr><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Jenis Permainan</td><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Sportsbook, Casino, Togel, Slot, PKV GAMES</td></tr></tbody></table>
