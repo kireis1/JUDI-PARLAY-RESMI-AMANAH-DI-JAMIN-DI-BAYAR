@@ -18,12 +18,12 @@ Situs kami mungkin sudah tidak asing di dengar karena banyaknya member yang seti
 hanya dengan minimal deposit 10 ribu rupiah saja bisa bermain berbagai jenis permainan yang tersedia di kami 
 
 
- ##Situs slot terbesar di jamin di bayar
+ ## Situs slot terbesar di jamin di bayar
 
 Situs <a href="https://link2.situsliga.com/?ref=4DDDFB" > liga 188</a> ini juga menyediakan permainan slot dari berbagai provider yang populer di mainkan member meber slot, jadi tidak perlu repot mendaftarkan banyak akun untuk berganti permainan, Di kami satu akun saja sudah cukup untuk bermain semua.. 
 provider yang tersedia di kami seperti pragmatic , PG soft , Spade gaming , dan lain lain adalah provider resmi yang jelas fair play tanpa settingan dan murni mengandalakan peruntungan member. 
 
-<font color="yellow" size="5"> Situs casino terbesar di jamin di bayar </font><br>
+## Situs casino terbesar di jamin di bayar </font><br>
 
 Situs <a href="https://link2.situsliga.com/?ref=4DDDFB" > liga 188</a> ini juga menyediakan permainan live casino dari berbagai provider, yang sudah di pastikan live tanpa settingan dan yang pasti menang berapapun dijamin di proses tanpa harus menunggu lama, karena kami mengutamakan pelayanan dan kenyamanan semua member member kami
 
@@ -31,7 +31,7 @@ Situs <a href="https://link2.situsliga.com/?ref=4DDDFB" > liga 188</a> ini juga 
 
 Situs <a href="situsliga.com/?ref=4DDDFB" > liga 188</a> ini sudah pasti banyak promo yang dapat di pilih sesuai kebutuhan member, yang tidak perlu ribet dan jelas untuk syarat dan ketentuannya tanpa bohong. karena kami terpercaya dan di pastikan bila syarat dan ketentuan terpenuhi kami jamin kami pasti bayar
 
-<font color="gree" size="4"> Bonus member baru </font><br>
+ ## Bonus member baru </font><br>
 <marquee direction="up" ><a href="https://link2.situsliga.com/?ref=4DDDFB" > <img src="https://ketentuan.com/liga188/assets/new-member.jpg" width="475" height="252">  </a></marquee>
 <font color="gree" size="4"> Bonus Cash back </font><br>
 <marquee direction="right"><a href="https://link2.situsliga.com/?ref=4DDDFB" >
