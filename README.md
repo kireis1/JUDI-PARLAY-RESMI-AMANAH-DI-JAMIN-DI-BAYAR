@@ -9,7 +9,7 @@ silahkan di coba peruntungannya dan mendaftar di kami
 <table><thead style="text-align: center; background: YELLOW; color: black;"><tr><th colspan="3" style="padding: 5px;">LIGA188</th></tr></thead><tbody style="background: black; color: white;"><tr><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Jenis Deposit</td><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Bank Transfer, Ovo, Dana, Gopay, Link aja dan Pulsa</td></tr><tr><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Minimal Deposit</td><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Rp 10.000</td></tr><tr><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Jenis Permainan</td><td style="border: 1px solid white; font-size: 12px; padding: 5px;">Sportsbook, Casino, Togel, Slot, PKV GAMES</td></tr></tbody></table>
 
 
-<font color="yellow" size="5"> Situs parlay terbesar di jamin di bayar </font> 
+ ## Situs parlay terbesar di jamin di bayar </font> 
 
 Situs <a href="https://link2.situsliga.com/?ref=4DDDFB" > liga 188</a> ini ada lah situs terbesar dengan jaminan semua member kami merasa puas tanpa harus menunggu lama untuk withdraw dan berapun kami pasti bayar.  
 
